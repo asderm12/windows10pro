@@ -18,4 +18,6 @@ Delivery time:  5 minutes (max 1 hour) . The product key and download link will 
 
 ⁃ Our 24/7 online support team will be available to you
 
+You Can Buy it Directly From our store
+
 https://odkeys.com/products/windows-10-pro-key-original
