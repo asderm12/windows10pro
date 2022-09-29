@@ -17,3 +17,5 @@ Region: Global
 Delivery time:  5 minutes (max 1 hour) . The product key and download link will be sent to your email.
 
 ⁃ Our 24/7 online support team will be available to you
+
+https://odkeys.com/products/windows-10-pro-key-original
